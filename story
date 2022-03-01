@@ -1,1 +1,1 @@
-I was born at the end of 1698. It was a cold year, my parents would warm soup over the open fire. They used wool blankets to keep me warm. I don't remember any of it because I was an infant. When I was 3 months old there was a terrible ice storm. During the storm we lost 2 horses. 
+I was born at the end of 1930. It was a cold year, my parents would hot porridge over the open fire. They used wool blankets to keep me warm. I don't remember any of it because I was an infant. When I was 4 months old there was a terrible ice storm. During the storm we lost 2 horses. 
